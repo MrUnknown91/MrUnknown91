@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @MrUnknown91!
+- 👀 I’m interested in games.
+- 🌱 I’m currently learning coding.
+- 💞️ I’m looking to collaborate on anything.
+- 📫 How to reach me isaac.ja9043@outlook.com or on discord mr_unknown9001.
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I have played millions of games.
